@@ -216,4 +216,4 @@ WarRock is available as a full free version, meaning all features and updates ar
 Don't miss out on joining the battlefield! Download WarRock today and experience the thrill of free online warfare!
 
 ---
-**Last updated:** 2026-11-08 15:46:42 UTC
+**Last updated:** 2026-11-08 20:10:56 UTC
